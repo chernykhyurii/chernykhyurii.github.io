@@ -1,1 +1,0 @@
-# chernykhyurii.github.io
